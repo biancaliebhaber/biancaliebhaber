@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on building simple yet powerful data visualizations. 
 - 📫 Connect with me on LinkedIn: linkedin.com/in/biancaliebhaber
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Ever think about the music playing while you shop? I run the music program for Nordstrom nationwide! AMA.
+- ⚡ Fun fact: Ever think about the music playing while you shop? I run the music program for a major department store nationwide! AMA.
 
 <!---
 biancaliebhaber/biancaliebhaber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
